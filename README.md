@@ -22,7 +22,7 @@ community input as the group becomes more established.
    It also includes the use of sexual imagery, deliberate intimidation, 
    stalking, following, harassing photography or recording, sustained 
    disruption of talks or other events, inappropriate physical contact, 
-   and persistent unwelcome sexual attention.   
+   and persistent unwelcome physical, or sexual attention.   
    
    Members asked to stop any harassing behaviour are expected to comply
    immediately.  
